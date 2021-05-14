@@ -1,0 +1,8 @@
+- Kaikai Kitan (OP 1 de Jujutsu Kaisen)
+- My war (OP 6 de Shingeki no Kyojin)
+- OP 1 (Kaguya Sama)
+- OP 2 (Kaguya Sama)
+- OP 1 (Nagatoro-San)
+- OP 1 (Naruto)
+- OP 16 (Naruto Shippuden)
+- OP 1 (Yu Yu Hakusho)
